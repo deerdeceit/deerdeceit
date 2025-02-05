@@ -1,16 +1,33 @@
-## Hi there 👋
+<p align="center">
+<img src="https://github.com/user-attachments/assets/339ea4c5-1cf8-4d51-913b-2b2a11592dfe"/>
+✩
+</p>
 
-<!--
-**deerdeceit/deerdeceit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+Ꮚ⁠˘⁠ ⁠ꈊ⁠ ⁠˘⁠ ⁠Ꮚ INFP-T / 15 / Genderfluid
+</p>
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+Ponytown stuff !!  
+</p>
+
+<p align="center">
+I am socially awkward, (unless if we become close) so don't expect me to talk alot.. (⁠╥⁠﹏⁠╥⁠)
+</p>
+
+<p align="center">
+ Do not copy my characters ig.. As if yall gonna copy those monstrosities !!
+</p>
+
+<p align="center">
+Make fun of my interests/troll = Instant hide
+</p>
+
+<p align="center">
+INTERESTS !! 
+</p>
+
+<p align="center">
+Hazbin hotel , The whole cookierun franchise , Gravity falls , Mlp , Sanrio , LOONA and etc.
+</p>
